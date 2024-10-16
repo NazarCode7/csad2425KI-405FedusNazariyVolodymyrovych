@@ -1,0 +1,1 @@
+# csad2425KI-405FedusNazariyVolodymyrovych
